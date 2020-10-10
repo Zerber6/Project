@@ -2,7 +2,7 @@
 
 ___
 
-![](/Images/1.jpg)
+![](https://dev.by/storage/images/70/18/78/49/derived/023ddaa0403803f38b86331719b6db56.jpg)
 
 ___
 
